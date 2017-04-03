@@ -1,1 +1,2 @@
-stupid world
+stupid world £¡£¡£¡
+
